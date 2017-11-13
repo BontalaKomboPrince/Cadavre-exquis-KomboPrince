@@ -1,4 +1,4 @@
-# Cadavre-exquis-KomboPrince
+﻿# Cadavre-exquis-KomboPrince
 *The Story of a storryteller*
 One upon a time, there was a young ST, He was made of **wisdom and madness**.
 His powers were the following;
@@ -46,4 +46,8 @@ Master and branches power
 There once was an andoid named _2B_
 
 She was part of the *YoRHa* group
-> This group was created for mankind's salavation after being invaded from space
+> This group was created for mankind's salavation after being invaded from space 
+ 
+  As his powers expanded, so did his limbs. 
+  Before he knew it, his Oommmmm turned into Yoga. 
+  As a matter of fact, he became Dhalsim.
