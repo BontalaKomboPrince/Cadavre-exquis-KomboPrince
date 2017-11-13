@@ -11,3 +11,8 @@ His powers were the following;
 *In your stupid repo.*
 _Really not,i'm not a sheep_
 
+*Bonjour*; Ici Mario.
+
+###### So far conflict has been avoided
+
+_Thats DOPE_
