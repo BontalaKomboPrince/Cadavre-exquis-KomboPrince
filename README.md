@@ -23,3 +23,7 @@ Elie alla à l'eau !!!
 ## There is an element of fun
 ## You find the fun and snap!
 ## *The job's a game*
+
+## Ik ging slapen met een doezoe, werd wakker met een ton
+## En vaak denk ik aan vroeger, ik weet waar het begon
+## Nu denk ik aan miljoenen, nee vraag me niet waarom
