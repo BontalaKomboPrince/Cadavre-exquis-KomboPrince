@@ -18,3 +18,8 @@ _Really not,i'm not a sheep_
 _Thats DOPE_
 
 Elie alla à l'eau !!!
+
+## In every job that must be done
+## There is an element of fun
+## You find the fun and snap!
+## *The job's a game*
