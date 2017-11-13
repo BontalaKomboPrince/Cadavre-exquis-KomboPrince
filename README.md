@@ -64,3 +64,5 @@ THE PERSON WHO LIVES LIFE FULLY, GLOWING WITH LIFE'S ENERGY, IS THE PERSON WHO L
 >>>>>>> 9c70415f222f81f610cfb49fe934f0e29006fa79
 
 “With great power, comes great responsibility.” – Spiderman
+
+"I am your father Jacob" -  Jacob's father (hopefully)
