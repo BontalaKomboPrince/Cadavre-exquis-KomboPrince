@@ -62,3 +62,5 @@ THE PERSON WHO LIVES LIFE FULLY, GLOWING WITH LIFE'S ENERGY, IS THE PERSON WHO L
   Before he knew it, his Oommmmm turned into Yoga. 
   As a matter of fact, he became Dhalsim.
 >>>>>>> 9c70415f222f81f610cfb49fe934f0e29006fa79
+
+“With great power, comes great responsibility.” – Spiderman
