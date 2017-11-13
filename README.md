@@ -65,4 +65,6 @@ THE PERSON WHO LIVES LIFE FULLY, GLOWING WITH LIFE'S ENERGY, IS THE PERSON WHO L
 
 “With great power, comes great responsibility.” – Spiderman
 
-"I am your father Jacob" -  Jacob's father (hopefully)
+
+"I am your father Jacob" - Hopefully Jacob's father
+
